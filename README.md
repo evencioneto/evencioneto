@@ -1,4 +1,4 @@
-# [Evencio Neto] <img src="https://www.shutterstock.com/image-vector/vintage-swallow-tattoo-vector-design-600nw-2436280779.jpg" width="50px">
+# [Evencio Neto] <img src="https://media.tenor.com/dYmegUB9j2gAAAAM/family-guy-peter-griffin.gif" width="90px">
 
 Eu sou <strong>Evencio Neto</strong>, <strong>Estudante de ADS na Faculdade SENAC </strong> 👨🏻‍💻 
 
