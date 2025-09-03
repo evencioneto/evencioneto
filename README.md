@@ -1,4 +1,4 @@
-# [Evencio Neto] <img src="https://media.tenor.com/dYmegUB9j2gAAAAM/family-guy-peter-griffin.gif" width="90px">
+# [Evencio Neto] <img src="https://media.tenor.com/dYmegUB9j2gAAAAM/family-guy-peter-griffin.gif" width="60px">
 
 Eu sou <strong>Evencio Neto</strong>, <strong>Estudante de ADS na Faculdade SENAC </strong> 👨🏻‍💻 
 
